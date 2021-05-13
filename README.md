@@ -1,1 +1,1 @@
-# ifSMART.github.io
+# ifSmart.Jr.github.io
